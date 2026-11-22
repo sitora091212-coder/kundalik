@@ -1,2 +1,2 @@
-\# Mening kundaligim — asosiy
+&#x20;# Sinov shoxidagi matn
 
