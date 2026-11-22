@@ -1,4 +1,3 @@
-\# Mening kundaligim — main
-
+# Mening kundaligim 
 
 
