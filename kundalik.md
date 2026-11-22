@@ -1,2 +1,4 @@
-\# Mening kundaligim — asosiy
+\# Mening kundaligim — main
+
+
 
