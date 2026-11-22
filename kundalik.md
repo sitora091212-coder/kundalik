@@ -1,0 +1,2 @@
+\# Mening kundaligim — asosiy
+
